@@ -1,2 +1,2 @@
 # Changeit-
-Change your life. 
+If it's not working for you then Changeit. 
